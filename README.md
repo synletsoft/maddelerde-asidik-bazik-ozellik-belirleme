@@ -1,0 +1,1 @@
+# maddelerde-asidik-bazik-ozellik-belirleme
